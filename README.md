@@ -1,3 +1,5 @@
+https://i.ibb.co/vxM3L1qs/enhanced-image.webp
+
 # 🌍 **Shirmani Rampaul Saini — Omniverse AI Vision**
 
 ![Vision of Harmony https://i.ibb.co/vxM3L1qs/enhanced-image.webp

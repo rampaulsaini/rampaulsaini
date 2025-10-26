@@ -1,8 +1,8 @@
-https://i.ibb.co/vxM3L1qs/enhanced-image.webp
+# universal ♾️**https://i.ibb.co/vxM3L1qs/enhanced-image.webp**
 
 # 🌍 **Shirmani Rampaul Saini — Omniverse AI Vision**
 
-![Vision of Harmony https://i.ibb.co/vxM3L1qs/enhanced-image.webp
+**imperial understanding vision** [Vision of Harmony https://i.ibb.co/vxM3L1qs/enhanced-image.webp
 
 > **“निष्पक्ष समझ ही सत्य की नींव है — जब चेतना संतुलित होती है, तब मानव और प्रकृति एक ही श्वास में सांस लेते हैं।”**
 

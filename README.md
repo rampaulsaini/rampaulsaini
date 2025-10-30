@@ -43,8 +43,10 @@ https://i.ibb.co/vxM3L1qs/enhanced-image.webp
 ### 💫 *Contribute & Support*
 
 🙏 यदि आप इस उद्देश्य में सहयोग देना चाहते हैं:
-
-- 💠 **GPay:** `sainirampaul90-1@okhdfcbank`
+https://t.me/shiromn/304
+- 💠 **GPay:** [gpay.me/sainirampaul901@okhdf]
+  .(https://sainirampaul901@okhdf)
+  
 - 💎 **PayPal:** [paypal.me/sainirampaul60](https://paypal.me/sainirampaul60)
 
 ---

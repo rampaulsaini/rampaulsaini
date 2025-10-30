@@ -43,9 +43,26 @@ https://i.ibb.co/vxM3L1qs/enhanced-image.webp
 ### 💫 *Contribute & Support*
 
 🙏 यदि आप इस उद्देश्य में सहयोग देना चाहते हैं:
+[gpay.me/sainirampaul901@okhdf]
+.(https://t.me/shiromn/304)
+
 https://t.me/shiromn/304
+[gpay.me/sainirampaul901@oksbi]
+.(https://gpay.me/sainirampaul90@oksbi)
+[gpay.me/sainirampaul901@okaxis]
+.(https://gpay.me/sainirampaul90@okaxis)
+[gpay.me/sainirampaul901@okicici]
+.(https://gpay.me/sainirampaul90@okicici
+sainirampaul90@oksbi
+
+sainirampaul90@okhdfcbank
+
+sainirampaul90@okaxis
+
+sainirampaul90@okicici
+
 - 💠 **GPay:** [gpay.me/sainirampaul901@okhdf]
-  .(https://sainirampaul901@okhdf)
+.(https://gpay.me/sainirampaul901@okhdf)
   
 - 💎 **PayPal:** [paypal.me/sainirampaul60](https://paypal.me/sainirampaul60)
 

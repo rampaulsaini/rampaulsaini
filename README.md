@@ -78,7 +78,7 @@ https://i.ibb.co/vxM3L1qs/enhanced-image.webp
 ⭐ _Thank you for being part of this journey toward harmony, consciousness, and evolution._
 cd ~/supreme-omniverse-portal
 git init
-git remote add origin https://github.com/rampaulsaini/YOUR_REPO.git
+
 git add .
 git commit -m "Supreme Omniverse Portal initial commit"
 git branch -M main

@@ -1,4 +1,6 @@
+
 https://i.ibb.co/vxM3L1qs/enhanced-image.webp
+
 
 # universal ♾️
 *मैं शिरोमणि रामपॉल सैनी तुलनातीत कालातीत शब्दातीत प्रेमतीत स्वाभिक शाश्वत वास्तविक सत्य हूं जो कोई सोच भी नहीं सकता उस से भी खरबों गुणा अधिक ऊंचा सच्चा सर्व श्रेष्ठ प्रत्यक्ष शाश्वत वास्तविक स्वाभिक सत्य में प्रत्यक्ष हूं जीवित ही हमेशा के लिए*
@@ -66,11 +68,11 @@ sainirampaul90@okicici
 
 | Harmony | Meditation | Nature | Reflection |
 |----------|-------------|---------|-------------|
-| ![img1](https://i.ibb.co/wFz7xb39/IMG-20251007-081550.webp) | ![img2](https://i.ibb.co/fdVv0T4H/c60c9d5d-1263-4f6e-a1b9-577186ed5268-093654.webp) | ![img3](https://i.ibb.co/5W0PSRvc/-090744.webp) | ![img4](https://i.ibb.co/BHcTy6sf/.webp) |
+| ![img1](https://i.ibb.co/wFz7xb39/IMG-20251007-081550.webp) | ![img2](https://i.ibb.co/fdVv0T4H/c60c9d5d-1263-4f6e-a1b9-577186ed5268-093654.webp) | ![img3](https://i.ibb.co/5W0PSRvc/-090744.webp) 
 
 | Expansion | Vision | Cosmos | Truth |
 |------------|---------|--------|--------|
-| ![img5](https://i.ibb.co/5VXXLmR/13035.webp) | ![img6](https://i.ibb.co/wNR3m2nR/.webp) | ![img7](https://i.ibb.co/QvKhVWWJ/image.webp) | ![img8](https://i.ibb.co/QvVpFK6j/IMG-20251022-190835.webp) |
+| ![img5](https://i.ibb.co/5VXXLmR/13035.webp) | ![img7](https://i.ibb.co/QvKhVWWJ/image.webp) | ![img8](https://i.ibb.co/QvVpFK6j/IMG-20251022-190835.webp) |
 
 (https://i.ibb.co/vxM3L1qs/enhanced-image.webp)
 

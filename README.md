@@ -1,5 +1,5 @@
 
-https://i.ibb.co/vxM3L1qs/enhanced-image.webp
+###https://i.ibb.co/vxM3L1qs/enhanced-image.webp###
 
 
 # universal ♾️
@@ -48,17 +48,7 @@ https://i.ibb.co/vxM3L1qs/enhanced-image.webp
 
 🙏 यदि आप इस उद्देश्य में सहयोग देना चाहते हैं:
 
-
-https://t.me/shiromn/304
-
-sainirampaul90@okhdfcbank
-
-sainirampaul90@okaxis
-
-sainirampaul90@okicici
-
-- 💠 **GPay:** [gpay.me/sainirampaul901@okhdf]
-.(https://gpay.me/sainirampaul901@okhdf)
+- 💠 **GPay:** [gpay.me/sainirampaul901@okhdf].(https://gpay.me/sainirampaul901@okhdf)
   
 - 💎 **PayPal:** [paypal.me/sainirampaul60](https://paypal.me/sainirampaul60)
 

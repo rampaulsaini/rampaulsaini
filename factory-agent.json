@@ -1,0 +1,14 @@
+{
+  "schema_version": 1,
+  "repo": "rampaulsaini/rampaulsaini",
+  "role": "public-knowledge",
+  "description": "Public knowledge/profile hub: index and summarize repository Markdown content; produce traceable inventory.",
+  "mode": "free-first",
+  "ai_provider": "optional",
+  "policy": {
+    "no_paid_api_required": true,
+    "do_not_execute_untrusted_code": true,
+    "research_label": "draft",
+    "no_scientific_validation_claims": true
+  }
+}
